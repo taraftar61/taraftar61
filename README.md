@@ -1,5 +1,10 @@
 # ⚽ **[Taraftarium24 | Alanyaspor 🆚 Galatasaray Canlı Maç İzle | Taraftarium | Canlı Maç İzle]** 🏆🎥
 
+SEO HİZMETLERİ İÇİN  : 
+**Telegram : beratbary**
+**Skype : live:.cid.6e381b5819b56acd**
+**WhatsApp : 0850 308 0169**
+
 ## 📲 **Bizi Sosyal Medyada Takip Edin!** 🔗
 📢 **Telegram Kanalımız:** [👉 Katıl ve Canlı Maçları Kaçırma!] 
 🐦 **Twitter (X) Hesabımız:** [👉 Takip Et ve Güncel Yayınları Öğren!]
